@@ -1,1 +1,1 @@
-1611012230 EMRE Yüksel
+1611012230 Emre Yüksel
